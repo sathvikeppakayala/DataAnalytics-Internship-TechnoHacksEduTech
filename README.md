@@ -41,7 +41,7 @@ Special thanks to TechnoHacks EduTech for providing this valuable internship opp
 
 Feel free to reach out if you have any questions or need further information!
 
-- [LinkedIn][www.linkedin.com/in/sathvik-eppakayala](https://in.linkedin.com/in/sathvik-eppakayala-867213291)
+- [LinkedIn]([www.linkedin.com/in/sathvik-eppakayala](https://in.linkedin.com/in/sathvik-eppakayala-867213291))
 
 ---
 
